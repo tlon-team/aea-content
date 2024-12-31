@@ -11,4 +11,4 @@ Para saber más sobre el altruismo eficaz (AE), podés leer [esta introducción]
 
 Para participar de nuestras reuniones presenciales, podés unirte a [nuestro grupo de Meetup](https://www.meetup.com/altruismo-eficaz-buenos-aires/).
 
-Para conectarte de manera virtual con otros miembros de la comunidad, podés unirte a [nuestro grupo de WhatsApp](https://chat.whatsapp.com/BfDp6v3bMwGEfwNGKnhJwV) (sobre AE) o a nuestro grupo de Telegram (sobre seguridad de la inteligencia artificial).
+Para conectarte de manera virtual con otros miembros de la comunidad, podés unirte a [nuestro grupo de WhatsApp](https://chat.whatsapp.com/BfDp6v3bMwGEfwNGKnhJwV) (sobre AE) o a [nuestro grupo de Telegram](https://t.me/+zfvMHU8TaAhjNjVh) (sobre seguridad de la inteligencia artificial).
